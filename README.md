@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **ksingh2_be22@thapar.edu**
 
-- ⚡ Fun fact **I can defeat you in Mini-militia anyday**
+- ⚡ Fun fact **I can defeat you in Mini-militia any day**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
